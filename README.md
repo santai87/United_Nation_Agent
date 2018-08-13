@@ -24,7 +24,8 @@
 
 ### Negative
 * X你娘 ===> Bangsat loe! (幫薩特路)
-* 奶子  ===> titik
+* 奶子  ===> tetek
+* fuck ===> ngentot
 
 ---
 
